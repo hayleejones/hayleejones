@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hayleejones
+- 👀 I’m interested in crystals and tarot :)
+- 🌱 I’m currently learning the ukelele cause im hot 
+- 💞️ I’m looking to collaborate on coding or whatevs 
+- 📫 How to reach me, disc- Lee Hates You#6821
